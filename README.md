@@ -1,5 +1,3 @@
-I am going to take a brake for some time. 
-
 <h2>Hello I am Werwolf2303</h2>
 
 - How to reach me: gianlucabeil2303@outlook.de

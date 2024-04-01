@@ -2,7 +2,7 @@
 
 - How to reach me: gianlucabeil2303@outlook.de
 - Pronouns: He/Him
-- Age : 17
+- Age : 18
 - Gay 🏳️‍🌈
 - Autistic
 - Favourite movie: Lilo and Stitch

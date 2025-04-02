@@ -6,7 +6,7 @@
 - Gay 🏳️‍🌈
 - Autistic
 - Favourite movie: Zoomania
-- Favourite anime: Naruto
+- Favourite anime: Beastars
 - Random good youtube video: <a href="https://youtu.be/cjZmbNupSm4" target="_blank">here</a>
 - Random good song: <a href="https://open.spotify.com/track/6VRhkROS2SZHGlp0pxndbJ?si=rzghizs7TZyJjfvzNNoS6g" target="_blank">here</a>
 - Click <a href="https://youtu.be/oPTwBv9lvhw" target="_blank">here</a>

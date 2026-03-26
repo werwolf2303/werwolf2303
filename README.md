@@ -10,5 +10,3 @@
 - Favourite anime: Beastars
 - Random good youtube video: <a href="https://www.youtube.com/watch?v=dxSA4EHCBjg" target="_blank">here</a>
 - Random good song: <a href="https://open.spotify.com/track/6VRhkROS2SZHGlp0pxndbJ?si=rzghizs7TZyJjfvzNNoS6g" target="_blank">here</a>
-
-## My website is under maintenance right now and not available

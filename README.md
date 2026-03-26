@@ -3,7 +3,6 @@
 
 - How to reach me: gianlucabeil2303@outlook.de
 - Pronouns: He/Him
-- Age : 19
 - Gay 🏳️‍🌈
 - Autistic
 - Favourite movie: Zoomania
